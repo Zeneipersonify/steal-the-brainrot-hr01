@@ -1,4 +1,4 @@
-#  
+#  steal the brainrot base secret Scripts offers the most advanced steal the brainrot base Script, with one-hit kill and anti-ban. Perfect for
 
 
 
